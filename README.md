@@ -1,0 +1,2 @@
+# premium-ceramic-mural-001-ceramic-mural-design-installat
+Tired of losing track of ceramic glaze recipes, mural panel dimensions, and installation schedules across a dozen sticky notes and spreadsheets? The Ceramic Mural Design Installation Manager brings every detail into one streamlined Notion workspace.  This template eliminates the chaos of managing complex ceramic mural projects by centralizing clien
